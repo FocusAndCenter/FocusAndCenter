@@ -127,6 +127,8 @@ Nein, bewusst nicht – dein System bringt sie mit: `Cmd+Umsch+5` (macOS), `Strg
 **Geld-zurück-Garantie?**
 14 Tage, ohne Angabe von Gründen.
 
+# DOWNLOAD
+https://drive.google.com/drive/folders/14VVT2uhyWEUUUwPtQGXmLgaCqt4QZn8L?usp=sharing
 ---
 
 ## Lizenz
